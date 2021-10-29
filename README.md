@@ -17,4 +17,4 @@
 
 ## 🤝 Contributing
 
-Contributions, issues and requests are welcome!<br />Feel free to check contribute to this by messaging fearrr#3838 on Discord.
+Contributions, issues and requests are welcome!<br />Feel free to check out my socials!
