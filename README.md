@@ -12,7 +12,7 @@
 
 * Github: [@realFearrr](https://github.com/realFearrr)
 * YouTube: [@fearrr](https://www.youtube.com/channel/UC0Uel4YiH6yA0PHAXEctRxQ)
-* Discord: @fearrr#3838
+* Discord: @fearin#3838
 * Telegram: [@fearrr](https://t.me/realfearrr)
 
 ## 🤝 Contributing
